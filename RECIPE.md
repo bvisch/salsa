@@ -14,7 +14,8 @@
 1.5 tbsp salt  
 0.5 to 1 tbsp cayenne pepper  
 0.25 to 0.5 tbsp cumin (optional)  
-0.25 tbsp coriander seed, ground (optional)
+0.25 tbsp coriander seed, ground (optional)  
+0.25 tbsp smoked paprika (optional)
   
 Tips:
 - To mellow out the onion, peel apart and soak it in water for 10 minutes before dicing.

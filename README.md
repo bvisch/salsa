@@ -13,7 +13,7 @@
 1 to 2 tbsp sriracha  
 1.5 tbsp salt  
 0.5 to 1 tbsp cayenne pepper  
-0.25 to 0.5 tbsp cumin (optional)
+0.25 to 0.5 tbsp cumin (optional)  
 0.25 tbsp coriander seed, ground (optional)
   
 Tips:

@@ -20,3 +20,5 @@ Tips:
 - To mellow out the onion, peel apart and soak it in water for 10 minutes before dicing.
 - It is very important to let the salsa sit overnight for the flavours to blend.
 - If using coriander seed, lightly toast it in a pan over medium-low heat, shaking occasionally to prevent burning. Stop when the aroma starts to come out, then grind it immediately.
+
+For the real deal, try to find Rodolfo's salsa at the market in Guelph: https://www.facebook.com/rodolforebelfoods
